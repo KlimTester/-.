@@ -98,7 +98,7 @@
 
 ## Резюме
 
-Вы можете ознакомиться с моим резюме скачав его как [PDF файл из моего Google Drive](https://drive.google.com/file/d/1rD66U65x4b07h1hp60fLV8gxpujAq2TQ/view?usp=sharing)
+Вы можете ознакомиться с моим резюме скачав его как [PDF файл из моего Google Drive](https://drive.google.com/file/d/1Hx-9FRCM1qfSAhf9UX47ICOUVLyfMs29/view?usp=sharing)
 
 -------
 
